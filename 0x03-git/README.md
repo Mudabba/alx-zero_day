@@ -1,0 +1,1 @@
+am a journalist also
